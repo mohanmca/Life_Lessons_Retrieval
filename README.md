@@ -19,8 +19,15 @@ From 2018, today => Every day, every moment, I choose to be Happy.
 
 Remember always: 
 
-1.  Remove the "I". It's not I. It's always the almighty. I am just a tool.
+1.  Remove the "I". It's not I. It's always the almighty. 
+    I am an observer (watcher/witness), who observes the action by the actor and thoughts created/produced/activated in the mind unconsciously/consciously.
+
 2.  Ego says, "Once everything falls into place, I will feel peace.".
     Spirit says, "Be at peace, and then everything will fall into place."
+
+3.  I am not the body. I am not the mind. I am the watcher.
+    Who am I?
+    Who knows better than you? Search in you and find
+    Remove the craving/longing desire.
 
 
